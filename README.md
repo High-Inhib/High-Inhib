@@ -2,7 +2,10 @@
 
 ### I'm a guy but I like watching cute anime girls doing cute things (*￣▽￣)b
 
-<img src="https://catbox.moe" width="400" alt="Anime Hug GIF" style="border-radius: 6px; border: 2px solid #2f343f; margin: 15px 0;"/>
+<div align="center">
+  <img src="https://files.catbox.moe/obm47s.gif" width="500" alt="Profile Banner" />
+</div>
+
 
 ---
 
