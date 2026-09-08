@@ -11,8 +11,8 @@
 
 ### watchlist
 
-![K-On!]
-![My Dress Up Darling]
-![Saiki K]
-![Don't tease me Miss Nagatoro]
-![Welcome to NHK]
+[K-On!]
+[My Dress Up Darling]
+[Saiki K]
+[Don't tease me Miss Nagatoro]
+[Welcome to NHK]
