@@ -1,5 +1,15 @@
-## I'm a guy but I like cute anime girls doing cute things (*￣▽￣)b
-<img src="https://files.catbox.moe/obm47s.gif" width="250" align="right" alt="Side GIF" />
+#  They don't make eroguros like they used to anymore // (⇀‸↼‶)
 
-I'm watching k on, my dress up darling, saiki k, don't tease me miss nagatoro and stuff. 
+### I'm a guy but I like watching cute anime girls doing cute things (*￣▽￣)b
 
+<img src="https://catbox.moe" width="400" alt="Anime Hug GIF" style="border-radius: 6px; border: 2px solid #2f343f; margin: 15px 0;"/>
+
+---
+
+### watchlist
+
+![K-On!](https://shields.io)
+![My Dress Up Darling](https://shields.io)
+![Saiki K](https://shields.io)
+![Don't tease me Miss Nagatoro](https://shields.io)
+![Welcome to NHK](https://shields.io)
