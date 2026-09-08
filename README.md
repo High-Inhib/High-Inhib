@@ -1,7 +1,7 @@
-## I'm a guy but I like cute anime girls doing cute things 
+## I'm a guy but I like cute anime girls doing cute things (*￣▽￣)b
 <div align="center">
   <img src="https://files.catbox.moe/obm47s.gif" width="500" alt="Profile Banner" />
 </div>
-<!--
-**High-Inhib/High-Inhib** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+
+I'm watching k on, my dress up darling, saiki k, don't tease me miss nagatoro and stuff. 
 
