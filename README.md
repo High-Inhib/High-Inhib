@@ -3,7 +3,7 @@
 
 
 <div align="center">
-  <img src="https://files.catbox.moe/obm47s.gif" width="500" alt="Profile Banner" />
+  <img src="https://files.catbox.moe/obm47s.gif" width="500" alt="Profile Banner" width="100%"/>
 </div>
 
  I'm a guy but I like watching cute anime girls doing cute things, feel free to int (*￣▽￣)b
