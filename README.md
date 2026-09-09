@@ -7,7 +7,10 @@
 </p>
 
 <br><br>
-
- ##I'm a guy but I like watching cute anime girls doing cute things, feel free to int (*￣▽￣)b
-
+> **About Me**
+> I'm a guy but I like watching cute anime girls doing cute things, feel free to int (*￣▽￣)b
 ---
+<br><br>
+### Current Focus
+* **Watching:** Nagatoro, evangelion, k-on, and gokudolls 
+* I play brawl stars a lot
