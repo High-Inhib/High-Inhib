@@ -7,5 +7,7 @@
 <br><br>
 <b>I'm a guy but I like watching cute anime girls doing cute things. Feel free to int, I probably won't judge you with the amount of bullshit I watch (*￣▽￣)b*</b>
 
-<img src="https://files.catbox.moe/64owvc.gif" width="200" align="left" alt="Profile GIF" />
+<br>
+
+<img src="https://files.catbox.moe/64owvc.gif" width="200" align="left" alt="Profile GIF" /></b>
 
