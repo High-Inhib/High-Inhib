@@ -10,4 +10,6 @@
 <br>
 
 <img src="https://files.catbox.moe/64owvc.gif" width="200" align="left" alt="Profile GIF" /></b>
+9teen, socially anxious, afk half the time 
 
+<br clear="left"/>
